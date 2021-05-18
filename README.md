@@ -1,1 +1,1 @@
-www.xiaoya。com                                              
+X学生宿舍所所
